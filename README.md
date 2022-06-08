@@ -8,3 +8,6 @@ The key to pure happiness is-
 DAMNIT! Why do I keep getting cut o-
 
 I'm getting real tired of thi-
+
+Please let the suffering end!
+Wait I actually finished a sentence with being cu-
