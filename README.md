@@ -6,3 +6,5 @@ I don't have long so I need to say this quick.
 The key to pure happiness is-
 
 DAMNIT! Why do I keep getting cut o-
+
+I'm getting real tired of thi-
