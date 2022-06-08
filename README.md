@@ -6,3 +6,6 @@ I don't have long so I need to say this quick.
 The key to pure happiness is-
 
 DAMNIT! Why do I keep getting cut o-
+
+Please let the suffering end!
+Wait I actually finished a sentence with being cu-
